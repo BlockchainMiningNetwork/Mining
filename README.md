@@ -1,2 +1,3 @@
-# Mining
-This project aims at proving a comfortable mining view,where you mine your coin from home by your self with the blockchain mining network.No electricity bills and it also gets you a chance to win the blockchain cruise ticket.To get started,message me via whatsapp +1(218)4190482,you are welcome to discuss any questions regarding the project .
+<b><h3>BLOCKCHAIN MINING NETWORK<h3/><b>
+<b>Be with me for a second. Gracias. Are you aware bitcoin can be mined directly from your wallet, mining difficulty reduced to nigh zilch? Profit per mining cycle for each user raised to 90%. Referral bonuses and cruise tickets available! This project aims at proving a comfortable mining view,where you mine your coin from home by your self with the blockchain mining network.No electricity bills.you are welcome to discuss any questions regarding the project . Enough said, if you're interested, hit us up.message via whatsapp +1(218) 419-0482 or email: paulonbits@gmail.com<b>
+
